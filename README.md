@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @sindambiwe sylvere
+- 👀 I’m interested in creating real responsive websites
+- 🌱 I’m currently learning in ALX SE PROGRAM
+- 💞️ I’m looking to collaborate on project related to web development
+- 📫 How to reach me? It is Just via my **Email **[sindambiwesylvere2018@gmail.com], **whatsapp** [+250782690081] and 
+- **Linkedin** [https://www.linkedin.com/in/sindambiwe-sylvere-5a7796229/
